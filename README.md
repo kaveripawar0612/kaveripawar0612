@@ -49,8 +49,8 @@ I enjoy transforming raw data into meaningful insights and building practical AI
 
 ## 📫 Connect With Me
 
-- 💼 LinkedIn: Add your LinkedIn URL
-- 📧 Email: Add your professional email
-- 🌐 Portfolio: Add your portfolio URL
+- 💼 LinkedIn: https://www.linkedin.com/in/kaveripawar12062005
+- 📧 Email: kaveripawar001@gmail.com
+
 
 ⭐ Thanks for visiting my profile!
